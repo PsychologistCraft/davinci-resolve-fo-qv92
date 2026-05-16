@@ -1,4 +1,4 @@
-# 
+# DaVinci Resolve for PC | DaVinci Resolve for Windows automatic Effect: AI-enhanced-editing & multi-track-editing offers the most advanced DaVinci Resolve for PC | DaVinci Resolve
 
 
 
